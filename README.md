@@ -2,3 +2,4 @@
 
 Witam wszystkich
 Kolejna zmiana
+Zmiana na komputerze
